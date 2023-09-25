@@ -2,8 +2,7 @@
 - 👀 I’m interested in ... business analytics
 - 🌱 I’m currently learning ...my post graduation on MBA specialization in business analytics
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...www.linkedin.com/in/
-saravanan-s-55ba77200
+- 📫 How to reach me ...https://www.linkedin.com/in/saravanan-s-55ba77200
 
 
 <!---
